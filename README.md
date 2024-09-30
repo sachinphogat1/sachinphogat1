@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @sachinphogat1
-- 👀 I’m interested in Cybersecurity and AI
+- 👀 I’m interested in Finance and AI
 - 🌱 I’m currently a Computer Science Master's student at University of Maryland, Baltimore County 
 - 📫 Reach me on https://www.linkedin.com/in/sachin-phogat-09121995/
 
